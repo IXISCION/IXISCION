@@ -1,3 +1,2 @@
-![4c1a5a95541d6b1747e30e8fe31e9a80](https://github.com/user-attachments/assets/fc6e715b-e8da-4470-b6eb-c1cd59b18fc7)
-
+![7e08a0fa681293365dc1cc32ebb2516f](https://github.com/user-attachments/assets/4b3d4e4f-dad5-469b-b00d-100de0047da3)
 but i swear on my name, k'uhul ajaw, that upon my accession to your form, you shall all be avenged.
